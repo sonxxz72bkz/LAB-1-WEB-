@@ -1,3 +1,4 @@
 # LAB-1-WEB-
 
-![list png](https://github.com/user-attachments/assets/9d606cc2-8b56-462b-b764-f9b6fde332ae)
+![Screenshot (34)](https://github.com/user-attachments/assets/9b2d8b83-0ccf-4480-a058-6d4ec589bd5e)
+![Uploading Screenshot (35).png…]()
